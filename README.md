@@ -2,7 +2,7 @@
 - 👀 I’m interested in cybersecurity
 - 🌱 I’m currently learning Pentesting
 - 💞️ I’m looking to collaborate on work
-- 📫 How to reach me rnobody082000@proton.me
+- 📫 How to reach me mrnobody082000@proton.me
 - 😄 Pronouns: Code
 - ⚡ Fun fact: Mr.Robot is mt favorite show
 
